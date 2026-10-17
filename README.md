@@ -17,8 +17,13 @@ I was trying to create 3x LP pools myself until I realized some interesting thin
 Count me IN for the long-term!
 😅🤣😇🥳
 
-https://t.co/OXAp6nyr0A</p>&mdash; Hairy Bagel (@Hairy_Bagel) <a href="https://x.com/Hairy_Bagel/status/2111266259060895836?ref_src=twsrc%5Etfw">October 17, 2026</a></blockquote>
+https://pump.fun/coin/AA1hANzAbftBU32KQCYfbsYnyMqA3uGCBeek1ZE5pump
+</p>
 
-```
+&mdash; Hairy Bagel (@Hairy_Bagel) <a href="https://x.com/Hairy_Bagel/status/2111266259060895836?ref_src=twsrc%5Etfw">October 17, 2026</a></blockquote>
+
 https://x.com/Hairy_Bagel/status/2111266259060895836
-```
+
+---
+
+
